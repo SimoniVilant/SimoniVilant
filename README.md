@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SimoniVilant
+- 👋 Hi, I’m @Simoni
 - 👀 I’m interested in *programar*
 - 🌱 I’m currently learning a **mexer** neste repositório
 - 💞️ I’m looking to collaborate on ...
