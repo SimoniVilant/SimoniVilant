@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Simoni
 - 👀 I’m interested in *programar*
-- 🌱 I’m currently learning a **mexer** neste repositório
+- 🌱 I’m currently learning  um novo conhecimento.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
